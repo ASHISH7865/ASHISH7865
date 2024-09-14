@@ -1,4 +1,4 @@
-# Ashish Jaiswal 👨‍💻
+# Ashish 👨‍💻
 ### Software Engineer | Full Stack Developer 🚀
 
 ## Professional Summary 🌟
